@@ -1,2 +1,2 @@
 # MY1REP
-Aprendiendo a crear repositorios xd
+Aprendiendo a crear repositorios 🥑
